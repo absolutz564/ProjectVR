@@ -1,0 +1,3 @@
+As always, you can use this model in anyting, but you cant sell it.... btw i don't think someone will buy this... xd
+as long it is a free model pls put my name somewhere else....
+enjoy it n_n
